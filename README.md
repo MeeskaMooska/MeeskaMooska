@@ -12,3 +12,6 @@ Please feel free to reach out to me with any questions or interest in collaborat
 ### Contact Info:
 **Work:** tstover2@gmu.edu
 **Personal:** tayven@tayven-stover.com
+
+PS:
+我是学习中国人
